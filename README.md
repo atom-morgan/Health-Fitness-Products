@@ -3,7 +3,7 @@
 #### Strength Training
 
 * [Ultimate Body Press Dip Bar Station](https://amzn.to/2WldCNe)
-* [Perfect Pullup](https://amzn.to/3f1vPWv)
+* [Perfect Pull-Up](https://amzn.to/3f1vPWv)
 * [Rage Fitness Wall Mounted Pull-Up Bar](https://amzn.to/3sR1gsu)
 * [Amazon Basics Kettlebell](https://amzn.to/3zXQhzW)
 * [Marcy Hammertone Kettlebell](https://amzn.to/3yOj6xD)
